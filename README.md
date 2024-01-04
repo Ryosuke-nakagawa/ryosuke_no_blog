@@ -1,0 +1,1 @@
+# ryosuke_no_blog
